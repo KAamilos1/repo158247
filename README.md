@@ -1,1 +1,3 @@
 # repo158247
+
+ZALICZENIE
